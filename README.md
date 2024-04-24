@@ -2,6 +2,11 @@
 Get ready to embark on a delightful journey through the world of fruits with Bhakalo, your one-stop shop for a healthy and informed shopping experience!
 
 
+Team Member's:
+Gargi Dalvi
+Pinak Dange
+Gandhar Dalvi
+
 Demo:
 
 
